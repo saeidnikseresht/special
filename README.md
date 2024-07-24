@@ -2,7 +2,8 @@
 #🤞 special prodect🤞
 
 **forward with power 
-                                                                                                                      ![فرانت-اند-چیست-2](https://github.com/user-attachments/assets/d8421389-1e57-4d04-9600-ca1190b87bf5)
+  ![wind-turbine-1](https://github.com/user-attachments/assets/0e18b319-d666-47dc-8acd-469a7f3f143b)
+                                                                                                                  
 
 ![Screenshot (5)](https://github.com/user-attachments/assets/7a7b0ce0-94cd-4971-9796-b404c832a2fe)
 
