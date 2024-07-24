@@ -1,7 +1,7 @@
 # special
 #🤞 special prodect🤞
 
-**forward with power 
+**Simple but eye-catching
   ![wind-turbine-1](https://github.com/user-attachments/assets/0e18b319-d666-47dc-8acd-469a7f3f143b)
                                                                                                                   
 
